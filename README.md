@@ -1,1 +1,0 @@
-# demo-dstv-tv-wall-mounting-cctv-installation-in-zimbabw
